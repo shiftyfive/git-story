@@ -1,1 +1,3 @@
-Once upon a time there was a web developer. 
+Once upon a time there was a web developer.
+Now this is a story all about how
+My life got flipped-turned upside down
