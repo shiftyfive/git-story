@@ -1,3 +1,3 @@
-Once upon a time there was a web developer.
+musical intro -
 Now this is a story all about how
 My life got flipped-turned upside down
